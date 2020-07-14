@@ -1,3 +1,0 @@
-# MERHABA-DUNYA
-
-bu da 2. denemem...
